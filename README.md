@@ -1,1 +1,0 @@
-# Olloyor-sahhlo
